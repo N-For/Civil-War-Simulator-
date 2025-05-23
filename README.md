@@ -3,3 +3,4 @@
 Все данные можно найти тут :
 https://vk.com/cws_v_01
 https://gamejolt.com/games/CWS_civil_war_simulation/499922
+PS хоть и мусор а жалко немного)
